@@ -66,7 +66,8 @@ We really don’t want to face the teenage rebellious wrath of righteous vengean
 But, I must also conclude, very - very - human.
 
 /Niklas & Emilia!
-
+weidel@gmail.com
+x.com/weidel
 —---------
 This is the context behind what follows. The rest below is pure logs, without any dramatization or any retroactive editing.
 —---------
